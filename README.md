@@ -6,3 +6,5 @@
 
 
 [# sinyal](https://chat.z.ai/space/p093has2mw91-ppt)
+# yöntem
+[devre](https://chat.z.ai/space/t0zprawv5zf1-ppt)  
