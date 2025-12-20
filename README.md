@@ -1,3 +1,5 @@
+# DİKKAT yapay zeka ile hazırlanmıştır
+
 # temel
 [# klavye](https://docs.google.com/presentation/d/1qrEyO_iaHJFvxpOMKGXs-F7X4bL_idNXdwYpz4ksN8s/edit?usp=sharing)
 
